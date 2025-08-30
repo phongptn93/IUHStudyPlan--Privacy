@@ -102,7 +102,7 @@ Extension IUH Study Plan tuân thủ:
 
 ## 📅 Thông Tin Cập Nhật
 
-**Cập nhật lần cuối:** Tháng 12, 2024
+**Cập nhật lần cuối:** Tháng 08, 2025
 
 ---
 
